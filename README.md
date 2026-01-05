@@ -1,2 +1,3 @@
 # Rafi_Coin
-2455.png
+Rafi Crypto currency is an gun game type.
+no any more description just download and try 😉
